@@ -1,4 +1,6 @@
 ### Dead_Jailing
+### Join my discord for any support needed
+### https://discord.gg/m39AUuSatU
 
 What is it?
 
